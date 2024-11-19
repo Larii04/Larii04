@@ -1,6 +1,7 @@
 ## Oii, eu sou a Larissa Ferreira. 👋👱🏻‍♀️
 
-- 📚 Estudante de Engenharia da Computação 7/10
+- 📚 Estudante de Engenharia da Computação 8/10
+- 👩‍💻 Estagiária de TI na T2S Tecnologia, sempre buscando soluções inovadoras
 - 🌱 Eu amo aprender! Cada dia evoluindo mais...
 - 😄 Pronomes: Ela/Dela
 #
